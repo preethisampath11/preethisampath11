@@ -10,8 +10,8 @@
 
 💞️ **Looking to Collaborate On:** UI/UX projects, frontend development, or problem-solving challenges  
 📫 **How to Reach Me:** [Your LinkedIn, Twitter, or Email]  
-😄 **Pronouns:** [She/Her, They/Them, etc.]  
-⚡ **Fun Fact:** [Something unique about you!]  
+😄 **Pronouns:** She/Her 
+⚡ **Fun Fact:** Preethi is passionate and ambitious about learning and exploring new artistic work!
 <!---
 preethisampath11/preethisampath11 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
