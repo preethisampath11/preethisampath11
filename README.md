@@ -9,7 +9,7 @@
 - **Design Tools:** Figma  
 
 💞️ **Looking to Collaborate On:** UI/UX projects, frontend development, or problem-solving challenges  
-📫 **How to Reach Me:** [Your LinkedIn, Twitter, or Email]  
+📫 **How to Reach Me:** @preethisampath123d@gmail.com  
 😄 **Pronouns:** She/Her 
 ⚡ **Fun Fact:** Preethi is passionate and ambitious about learning and exploring new artistic work!
 <!---
